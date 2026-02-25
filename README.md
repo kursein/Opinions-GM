@@ -1,6 +1,6 @@
 # Opinions-GM
 
-Incest is a common topic in Greek Mythology, and a lot of discourse happens because of it. But, I will be mostly talking about why I understand __SOME__ but not a lot of them.
+Incest is a common topic in Greek Mythology, and a lot of discourse happens because of it. But, I will be mostly talking about why I understand __SOME__ but not most of them.
 
 Using "Greek mythology" is a dumb excuse that is commonly used in the fandom, it's genuinely hilarious since people either can't use their own words, or they are just a proshipper in denial. Here's a basic case on where shipping the gods is wrong: Shipping a God with another God that they SEE as a sibling, mother, father, etc. Those are the worst case scenarios that I don't accept, and I WILL unfriend you if I found out you shipped those. I think it's just stupid that you'll ship them even after you read text where they'll call the other "Aunt", "Father, "Mother", and etc or you are just straight up blind. 
 Another basic case that is SOMEWHAT really common now is shipping A God with a mortal in which they are related to. Here are the examples: Odysseus x Poseidon , Odysseus x Hermes , and Telemachus x Hermes. (Theres more but I can't think of it right now) Poseidon is Odysseus's Great Granduncle since he is related to Zeus (Father's side) , Hermes is Odysseus's Great Grandfather (Mother's side), and Hermes is Telemachus's great GREAT Grandfather. We are speaking about a GOD w/ a **mortal** that they are **related** to. If you can't see the problem, YOU are the problem!
